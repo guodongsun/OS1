@@ -1,1 +1,2 @@
-#OS1 OF MOVIE 《Her》
+# OS1 in movie 《Her》
+Release your power!
